@@ -6,4 +6,4 @@
 
 
 
-![ezgif com-video-to-gif](https://github.com/samyak2403/SplashScreen/assets/126759819/ad11a219-f95a-4038-b0cb-094692542057)
+![ezgif com-video-to-gif](https://github.com/samyak2403/SplashScreen/assets/126759819/80bf80c1-6059-4feb-a446-4104019ced5c)
