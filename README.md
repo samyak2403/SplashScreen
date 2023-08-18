@@ -2,7 +2,8 @@
 
 
 
-https://github.com/samyak2403/SplashScreen/assets/126759819/cf02c98b-a7c8-484d-a64c-e6640cffceec
 
 
 
+
+![ezgif com-video-to-gif](https://github.com/samyak2403/SplashScreen/assets/126759819/ad11a219-f95a-4038-b0cb-094692542057)
